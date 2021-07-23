@@ -23,6 +23,6 @@ Here are some ideas to get you started:
 
 💬 Pregúntame acerca de Fundamentos de Redes y espero poder ayudarte.
 
-📱 ¿Cómo me encuentras?, Fácil, puedes mandarme mensaje al 959 093 743 o escribirme a mi correo electrónico
+📱 ¿Cómo me encuentras?, Fácil, puedes mandarme mensaje al 959 093 743 o escribirme a mi correo electrónico.
 
 🏠 Vivo actualmente en Arequipa, Perú.
