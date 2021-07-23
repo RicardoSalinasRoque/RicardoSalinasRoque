@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 🎓 Estudié Ingeniería de Telecomunicaciones en la Universidad Católica San Pablo.
 
-💼 Actualmente estoy trabajando el Lever It, brindando servicios de TI de Soporte OnSite para el grupo Scotiabank.
+💼 Actualmente estoy trabajando en Lever It, brindando servicios de TI como Soporte OnSite para el grupo Scotiabank.
 
 📚 Estoy buscando mejorar mis habilidades en el área de Redes para lo cual vengo llevando el curso de CISCO y de ITIL.
 
