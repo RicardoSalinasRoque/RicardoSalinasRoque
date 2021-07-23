@@ -15,12 +15,14 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-🎓 Estudié Ingeniería de Telecomunicaciones en la Unirsidad Católica San Pablo.
+🎓 Estudié Ingeniería de Telecomunicaciones en la Universidad Católica San Pablo.
 
-💼 Actualmente estoy trabajando el Lever It, brindando servicios de TI de Soporte OnOffiec para el grupo Scotiabank.
+💼 Actualmente estoy trabajando el Lever It, brindando servicios de TI de Soporte OnSite para el grupo Scotiabank.
 
-📚 Estoy buscando mejorar mis habilidades en el área de redes para lo cual vengo llevando el curso de CISCO y de ITIL.
+📚 Estoy buscando mejorar mis habilidades en el área de Redes para lo cual vengo llevando el curso de CISCO y de ITIL.
 
 💬 Pregúntame acerca de Fundamentos de Redes y espero poder ayudarte.
 
-📱 ¿Cómo me encuentras?, Fácil, puedes mandarme mensaje al 959 093 743, radico en Arequipa, Perú.
+📱 ¿Cómo me encuentras?, Fácil, puedes mandarme mensaje al 959 093 743 o escribirme a mi correo electrónico
+
+🏠 Vivo actualmente en Arequipa, Perú.
