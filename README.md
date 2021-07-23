@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hola a todos 👋
 
 <!--
 **RicardoSalinasRoque/RicardoSalinasRoque** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🎓 Estudié Ingeniería de Telecomunicaciones en la Unirsidad Católica San Pablo.
+
+💼 Actualmente estoy trabajando el Lever It, brindando servicios de TI de Soporte OnOffiec para el grupo Scotiabank.
+
+📚 Estoy buscando mejorar mis habilidades en el área de redes para lo cual vengo llevando el curso de CISCO y de ITIL.
+
+💬 Pregúntame acerca de Fundamentos de Redes y espero poder ayudarte.
+
+📱 ¿Cómo me encuentras?, Fácil, puedes mandarme mensaje al 959 093 743, radico en Arequipa, Perú.
