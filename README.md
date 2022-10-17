@@ -17,9 +17,9 @@ Here are some ideas to get you started:
 
 🎓 Estudié Ingeniería de Telecomunicaciones en la Universidad Católica San Pablo.
 
-💼 Actualmente trabajo independiente como free lance en Diseño de Páginas Web, brindando servicios de asesoramiento Profesional a personas que busquen expandir su negocio por las redes.
+💼 Actualmente trabajo independiente como Free lance en Diseño de Páginas Web, brindando servicios de asesoramiento Profesional a personas que busquen expandir su negocio por las redes.
 
-📚 Actualmente estoy mejorando mis habilidades pedagógicas y trabajo como profesor independiente.
+📚 Actualmente estoy mejorando mis habilidades pedagógicas y trabajo part-time como profesor independiente.
 
 💬 Pregúntame acerca del objetivo de cada emprendedor y la necedidad de aplicar las Telecomunicaciones en cualquier ámbito laboral y espero poder ayudarte.
 
