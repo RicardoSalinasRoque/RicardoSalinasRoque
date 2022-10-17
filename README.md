@@ -17,11 +17,11 @@ Here are some ideas to get you started:
 
 🎓 Estudié Ingeniería de Telecomunicaciones en la Universidad Católica San Pablo.
 
-💼 Actualmente estoy trabajando en Lever It, brindando servicios de TI como Soporte OnSite para el grupo Scotiabank.
+💼 Actualmente trabajo independiente como free lance en Diseño de Páginas Web, brindando servicios de asesoramiento Profesional a personas que busquen expandir su negocio por las redes.
 
-📚 Estoy buscando mejorar mis habilidades en el área de Redes para lo cual vengo llevando el curso de CISCO y de ITIL.
+📚 Actualmente estoy mejorando mis habilidades pedagógicas y trabajo como profesor independiente.
 
-💬 Pregúntame acerca de Fundamentos de Redes y espero poder ayudarte.
+💬 Pregúntame acerca del objetivo de cada emprendedor y la necedidad de aplicar las Telecomunicaciones en cualquier ámbito laboral y espero poder ayudarte.
 
 📱 ¿Cómo me encuentras?, Fácil, puedes mandarme mensaje al 959 093 743 o escribirme a mi correo electrónico.
 
